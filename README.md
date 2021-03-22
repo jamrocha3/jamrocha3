@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jamrocha3
+- 👀 I’m interested in testing. 🚀🚀🚀
+- 🌱 I’m currently learning test automation. 🤞
+- 💞️ I want to work with the best teams.
